@@ -61,7 +61,7 @@ To help the **Category Manager for Chips** understand:
 
 **Firdous Rahmani**  
 📧 [rahmanifirdous77@gmail.com]  
-🔗 [LinkedIn Profile] | [Portfolio if any]
+🔗 www.linkedin.com/in/firdousrahmani
 
 
 
